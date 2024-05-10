@@ -1,1 +1,1 @@
-# APP-Educaci-n-Sexual
+# APP-Educación Sexual
